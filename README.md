@@ -1,5 +1,5 @@
 # 💫 About Me:
-i love the tche and programing and cybersicurty and lot of thing and coding <br>
+
 
 
 ## 🌐 Socials:
